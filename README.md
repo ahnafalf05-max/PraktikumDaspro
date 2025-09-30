@@ -1,2 +1,1 @@
-Hello Github, ini adalah repository pertama saya. aku masih maba tahun 2025 saya newbie 
-aku asli malang
+saya adalah maba tahun 2025 
